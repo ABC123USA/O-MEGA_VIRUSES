@@ -16,3 +16,13 @@ O-MEGA VIRUSES: https://www.facebook.com/103523504353681/posts/103527944353237/?
 ABC 123 USA, LLC https://www.facebook.com/abc123usa/
 
 USE A SMARTPHONE QR CODE SCANNER OR READER TO SCAN THE INCLUDED QR CODES TO FOLLOW A LINK TO THE LISTED DOCUMENTATION
+
+=========================
+
+SOCIAL MEDIA LINKS:
+
+INSTAGRAM: https://www.instagram.com/abc123usofa/
+
+TWITTER: https://twitter.com/ABC123_USA
+
+FACEBOOK: https://www.facebook.com/abc123usa/
