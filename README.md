@@ -32,19 +32,6 @@ You must display the included stickers/signs (so that it is clearly visible) if 
 
 =====================
 
-SOCIAL MEDIA LINKS:
-
-INSTAGRAM: https://www.instagram.com/abc123usofa/
-
-TWITTER: https://twitter.com/ABC123_USA
-
-FACEBOOK: https://www.facebook.com/abc123usa/
-
-
-
-
-
-=========================
 
 SOCIAL MEDIA LINKS:
 
